@@ -1,1 +1,1 @@
-# iconicevent.com
+# iconicevent
